@@ -1,5 +1,5 @@
 ![☆](https://files.catbox.moe/spa3wf.gif)
-###  ╬═⠀ABOUT *NEIGE*⠀![❣️](https://files.catbox.moe/qupc0s.gif)⠀❝
+###  ╬═⠀ABOUT *NEIGE*⠀![❣️](https://files.catbox.moe/xb0sk4.gif)⠀❝
 
 ━━╋━ ![♦️](https://files.catbox.moe/44fd3f.gif) **HiHi, My name is LOVEINE, and I also go by NEIGE! You can also just call me by my fav character's names or the cospony I'm using at the moment. I don't mind! I'm seventeen (17). My birthday is on march 9th and I'm a pisces! ^w^ I use any pronouns! I'm also pronounfluid. Currently, I preferably want to be called they/she and my neopronouns. But any others are also ok! As I said, I don't care but this preference might change anytime. Read my** ***[prns.cc](https://pronouns.cc/@IDINEI)*** **for more info! I try to keep both here and there updated with my current preferences! ^_^ㅤ𝆤 𓈒 ❀ᮬ**
 
