@@ -1,4 +1,4 @@
-![☆](https://files.catbox.moe/nrfu2h.png)
+![☆](https://files.catbox.moe/spa3wf.gif)
 ###  ╬═⠀ABOUT *NEIGE*⠀![❣️](https://files.catbox.moe/qupc0s.gif)⠀❝
 
 ━━╋━ ![♦️](https://files.catbox.moe/9mermf.gif) **HiHi, My name is LOVEINE, and I also go by NEIGE! You can also just call me by my fav character's names or the cospony I'm using at the moment. I don't mind! I'm seventeen (17). My birthday is on march 9th and I'm a pisces! ^w^ I use any pronouns! I'm also pronounfluid. Currently, I preferably want to be called they/she and my neopronouns. But any others are also ok! As I said, I don't care but this preference might change anytime. Read my** ***[prns.cc](https://pronouns.cc/@IDINEI)*** **for more info! I try to keep both here and there updated with my current preferences! ^_^ㅤ𝆤 𓈒 ❀ᮬ**
@@ -9,6 +9,6 @@
 
 ━━╋━ ![♦️](https://files.catbox.moe/yxvrs8.gif) **I change interests frequently! ^_^" Forsaken & Roblox are currently my biggest interests! I also like Die Of Death, Forsaken but More, PWned by 14:00, Dandy's World, Save Robloxia, Outlaws of Robloxia, The Robloxia Until Dawn and other games! Some of my other interests are: Gacha games, Monster High, Ever After High, Barbie, Rainbow High, Bungo Stray Dogs, Kuroshitsuji, Precure, Epic The Musical, Hadestown, Yuumori and Alice in Wonderland. I also like some other things like dolls, makeup, fashion, subcultures, horror, history and true crime (and any games that include saving robloxia.)ㅤ𝆤 𓈒 ❀ᮬ**
 
-━━╋━ ![♦️](https://files.catbox.moe/9mermf.gif) **I use she/her & they/them on various characters and also headcannon them as girls, like 1x7 and Mequot. If you correct me knowing about this, I'll block you. You don't have to agree with me, just respect my headcannons. 𝆤 𓈒 ❀ᮬ**
+━━╋━ ![♦️](https://files.catbox.moe/9mermf.gif) **I use she/her & they/them on various characters and also headcannon them as girls, like Cater and Riddle. If you correct me about their gender knowing about this, I'll block you. You don't have to agree with me, just respect my headcannons. 𝆤 𓈒 ❀ᮬ**
 
-![❣️](https://files.catbox.moe/34gbuv.png)
+![❣️](https://files.catbox.moe/hxsyvf.gif)
